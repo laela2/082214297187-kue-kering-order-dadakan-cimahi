@@ -8,4 +8,5 @@ Teh Rita
 082214297187
 https://kuekeringcimahiterbaru.blogspot.com/2024/12/082214297187-kue-kering-cimahi-terbaru.html
 https://imgur.com/gallery/082214297187-kue-kering-toping-wijen-cimahi-Bo6BYjT
+https://kuekeringcimahiterbaru.blogspot.com/
 
